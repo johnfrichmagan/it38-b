@@ -19,6 +19,8 @@ Key Success Factor
 
 Outcomes and Impact
 -	The real impact of the  framework is designed to help ensure that The Coca‑Cola Company remains at the forefront of responsible business practices and advances positive human rights impacts. Central to this framework are our efforts to bring change to the lives of those we touch around the world.
+
+
 Royal Mail
 
 Company Overview
